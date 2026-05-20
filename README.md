@@ -53,7 +53,7 @@ I’m **ALX-17**, a tech YouTuber creating short & powerful content on:
 
 - 📺 YouTube: [@ALX-17](https://www.youtube.com/@ALX-17)  
 - 💬 Drop comments in my videos or open issues here  
-- 📧 Business inquiries: *(Add your email if you want)*
+- 📧 Business inquiries: hello.ayushishere@gmail.com
 
 ---
 
